@@ -1,4 +1,4 @@
 # Welcome to Mobile Legends! 
-This is my first prroject here. 
-for more info contact me on my FB.
+This is my first project.
+contact me for more info.
 FB account: https://web.facebook.com/rainida.alimatar
